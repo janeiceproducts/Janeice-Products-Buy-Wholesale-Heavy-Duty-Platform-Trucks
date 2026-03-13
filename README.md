@@ -30,7 +30,7 @@ Wholesale platform trucks help businesses improve internal transportation effici
 
 ## Buy Custom Heavy Duty Warehouse Platform Trucks
 
-Warehouses often require equipment designed to support unique operational workflows. Companies that [**buy custom heavy duty warehouse platform trucks**](https://www.janeiceproducts.com/category/platform/platform-heavy-duty) can choose platform trucks tailored to their specific requirements.
+Warehouses often require equipment designed to support unique operational workflows. Companies that [**buy custom heavy duty warehouse platform trucks**](https://www.janeiceproducts.com/category/platform) can choose platform trucks tailored to their specific requirements.
 
 Custom platform trucks allow businesses to select features such as deck size, load capacity, wheel type, and handle configuration. This flexibility ensures that equipment fits the specific needs of the warehouse environment.
 
